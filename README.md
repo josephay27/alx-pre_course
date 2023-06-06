@@ -1,1 +1,1 @@
-God is Good
+Jesus is lord
